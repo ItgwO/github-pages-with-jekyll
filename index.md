@@ -1,3 +1,5 @@
-# Welcome to my blog
+# Welcome to ItgwO's blog
 
-I'm glad you are here. I plan to talk about ...
+Thank you very much for visiting my test homepage. Feel free to dm me for any suggestions on improvement :-D
+**_“I have not failed. I've just found 10,000 ways that won't work.”_**
+*Thomas A. Edison* 
